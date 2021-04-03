@@ -1,1 +1,2 @@
 # Rabri
+Rabri is a sweet, condensed-milk-based dish, originating from the Indian subcontinent, made by boiling milk on low heat for a long time until it becomes dense and changes its colour to off-white or pale yellow. Jaggery, spices, and nuts are added to it to give it flavor. It is chilled and served as dessert.
